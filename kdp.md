@@ -17,7 +17,6 @@ In this book, you'll learn how to:
 
 Whether you're a seasoned professional or just starting your career, "The Art of Gratitude" offers valuable insights and practical tools for achieving greater happiness and success at work. By adopting a grateful mindset, you can transform your experience of work and create a more meaningful and fulfilling career.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
