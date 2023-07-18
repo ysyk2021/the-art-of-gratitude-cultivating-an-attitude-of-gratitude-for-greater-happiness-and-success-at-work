@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction
-
 In today's fast-paced and highly competitive work environment, it's easy to get caught up in the day-to-day stress and lose sight of what's truly important. However, by cultivating an attitude of gratitude, we can transform our perspective and find greater happiness and success at work.
 
 "The Art of Gratitude" is a book that explores the power of gratitude in the workplace and provides practical strategies for cultivating this mindset. This book will help you develop an appreciation for the small things in life, recognize the value of your work and colleagues, and foster a culture of positivity and collaboration in the workplace.
