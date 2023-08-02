@@ -51,5 +51,3 @@ Conclusion
 ----------
 
 Showing appreciation is an art form that can transform workplaces and elevate individual and team success. By incorporating these techniques into your daily interactions, you can cultivate a culture of appreciation, making the workplace a more positive, fulfilling, and successful environment for everyone.
-
-*Note: This chapter focuses on techniques for showing appreciation in the workplace. It provides practical strategies that can be implemented to express gratitude and foster a culture of appreciation.*

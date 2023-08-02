@@ -56,5 +56,3 @@ Conclusion
 ----------
 
 Assessing your personal gratitude level is a crucial step towards nurturing an attitude of gratitude for greater happiness and success at work. By honestly evaluating your current mindset and practices, you can identify areas for improvement and set goals to enhance your gratitude. Embracing gratitude as a daily practice will not only benefit your own well-being but also contribute to a positive work environment and stronger relationships with colleagues.
-
-*Note: This chapter explores the importance of assessing one's personal gratitude level and provides prompts and questions to facilitate the assessment process. It emphasizes self-reflection, goal setting, and seeking support to foster personal growth in gratitude.*

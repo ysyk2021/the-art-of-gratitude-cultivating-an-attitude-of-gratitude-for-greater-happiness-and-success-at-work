@@ -66,5 +66,3 @@ The Synergy of Gratitude and Emotional Intelligence
 ---------------------------------------------------
 
 By understanding and embracing the intersection of gratitude and emotional intelligence, we can cultivate an attitude of gratitude that enhances our emotional intelligence in the workplace. As we develop self-awareness, empathy, and social skills through gratitude, we become more effective communicators, collaborators, and leaders. The synergy between gratitude and emotional intelligence contributes to greater happiness, success, and fulfillment at work.
-
-*Note: This chapter highlights the powerful connection between gratitude and emotional intelligence (EQ) and provides practical strategies for cultivating gratitude to enhance emotional intelligence in the workplace. It is not an exhaustive exploration of the topic.*

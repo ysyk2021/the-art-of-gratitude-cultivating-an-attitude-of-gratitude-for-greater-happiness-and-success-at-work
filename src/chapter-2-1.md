@@ -61,5 +61,3 @@ Conclusion
 ----------
 
 Gratitude is a transformative practice that can greatly impact our happiness and success at work. By cultivating an attitude of gratitude, we shift our perspective, enhance relationships, and embrace the present moment. Integrating gratitude into our daily lives empowers us to enjoy greater fulfillment, resilience, and overall well-being in the workplace.
-
-*Note: This chapter provides an overview of gratitude and its significance in cultivating an attitude of gratitude for greater happiness and success at work. It highlights the benefits of gratitude and suggests practical strategies to integrate it into the workplace.*

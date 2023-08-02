@@ -60,5 +60,3 @@ Conclusion
 ----------
 
 By harnessing the power of gratitude, teams can create a supportive and inclusive environment where individuals feel valued, appreciated, and inspired to collaborate. Building stronger teams through gratitude not only enhances team dynamics but also contributes to the overall happiness, well-being, and success of individuals and the organization as a whole.
-
-*Note: This chapter focuses on using gratitude as a tool for building stronger teams in the workplace. It provides practical strategies for fostering a culture of appreciation and collaboration within teams.*

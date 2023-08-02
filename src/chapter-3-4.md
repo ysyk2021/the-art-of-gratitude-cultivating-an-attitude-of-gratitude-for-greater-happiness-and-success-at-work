@@ -42,5 +42,3 @@ Embracing Gratitude as a Resilience-Building Skill
 --------------------------------------------------
 
 By embracing gratitude as a resilience-building skill, we can harness its power to navigate challenges and setbacks at work. Through gratitude practices, reframing challenges, building social connections, and fostering self-compassion, we strengthen our ability to bounce back, adapt, and thrive. By developing resilience through gratitude, we enhance our happiness, well-being, and ultimately achieve greater success in our professional lives.
-
-*Note: This chapter explores the relationship between gratitude and resilience, highlighting how cultivating gratitude can contribute to the development of resilience in the workplace. It provides practical strategies for incorporating gratitude into daily routines to enhance resilience-building efforts.*
