@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-==================================================================================
 
 Measuring the impact of gratitude is crucial for understanding its benefits and adapting to changes in the workplace. In this chapter, we will explore how gratitude can be used to adapt to changes in the workplace.
 

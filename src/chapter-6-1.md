@@ -1,4 +1,3 @@
-# Understanding the Intersection of Gratitude and Emotional Intelligence (EQ)
 
 In recent years, the fields of positive psychology and emotional intelligence have gained significant attention as researchers and practitioners explore the factors that contribute to greater happiness and success in life. Among these factors, gratitude has emerged as a powerful practice that can enhance emotional intelligence (EQ) and improve overall well-being.
 

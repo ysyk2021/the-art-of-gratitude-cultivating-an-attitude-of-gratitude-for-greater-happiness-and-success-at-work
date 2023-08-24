@@ -1,5 +1,3 @@
-Assessing Your Personal Gratitude Level
-================================================
 
 In this chapter, we will explore how to assess your personal gratitude level and understand your current mindset and practices related to gratitude. By evaluating your gratitude level, you can gain insights into areas for improvement and develop strategies to cultivate a more grateful attitude for greater happiness and success at work.
 

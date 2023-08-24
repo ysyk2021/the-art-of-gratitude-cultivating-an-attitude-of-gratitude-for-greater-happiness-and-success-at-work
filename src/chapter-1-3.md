@@ -1,5 +1,3 @@
-Benefits of Cultivating an Attitude of Gratitude
-===========================================================
 
 In this chapter, we explore the numerous benefits that come with cultivating an attitude of gratitude in the workplace. From enhancing happiness and well-being to fostering stronger relationships and increasing productivity, practicing gratitude yields a wide range of positive outcomes for individuals and organizations.
 

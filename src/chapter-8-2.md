@@ -1,5 +1,3 @@
-Creating Gratitude Rituals and Practices
-===================================================
 
 In this chapter, we explore the significance of creating gratitude rituals and practices as a means to cultivate an attitude of gratitude for greater happiness and success at work. By incorporating regular gratitude practices into our daily routines, we can enhance our well-being, foster positive relationships, and find deeper fulfillment in our professional lives.
 

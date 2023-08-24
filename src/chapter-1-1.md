@@ -1,5 +1,3 @@
-Understanding the Importance of Gratitude in the Workplace
-===================================================================
 
 In this chapter, we explore the significance of gratitude in the workplace and how cultivating an attitude of gratitude can lead to greater happiness and success at work. We delve into the various ways in which gratitude impacts individuals, teams, and organizations positively, fostering a more positive work culture and enhancing overall well-being.
 

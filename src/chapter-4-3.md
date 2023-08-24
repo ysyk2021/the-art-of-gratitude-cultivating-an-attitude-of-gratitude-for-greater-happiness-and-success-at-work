@@ -1,5 +1,3 @@
-Using Gratitude to Build Stronger Teams
-================================================
 
 In this chapter, we will explore how gratitude can be used as a powerful tool for building stronger teams in the workplace. We will discuss the impact of gratitude on team dynamics, collaboration, and overall team performance. By cultivating an attitude of gratitude, we can foster a positive and cohesive team environment that leads to greater happiness and success at work.
 

@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Barriers to Gratitude
-===========================================
 
 While cultivating an attitude of gratitude in the workplace can have many benefits, there are also barriers that can make it challenging. In this chapter, we will explore strategies for addressing negativity and cynicism, dealing with difficult situations and people, managing stress and burnout, and balancing gratitude and ambition.
 

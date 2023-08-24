@@ -1,4 +1,3 @@
-# Managing Conflict and Resolving Disagreements with Gratitude
 
 Conflict and disagreements are an inevitable part of life, especially in the workplace. However, by cultivating an attitude of gratitude, we can transform these challenging situations into opportunities for growth, understanding, and improved relationships. In this chapter, we will explore how to manage conflicts effectively and resolve disagreements with gratitude.
 

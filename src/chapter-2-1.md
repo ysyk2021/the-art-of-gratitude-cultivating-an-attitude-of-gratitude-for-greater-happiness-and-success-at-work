@@ -1,5 +1,3 @@
-Overview of Gratitude
-==============================
 
 In this chapter, we will provide an overview of gratitude and its significance in cultivating an attitude of gratitude for greater happiness and success at work. Gratitude is a powerful tool that can transform our mindset, emotions, and relationships, allowing us to thrive personally and professionally. By understanding the essence of gratitude, we can harness its benefits and integrate it into our daily lives.
 

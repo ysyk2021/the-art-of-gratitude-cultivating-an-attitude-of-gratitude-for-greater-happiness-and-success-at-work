@@ -1,5 +1,3 @@
-Common Misconceptions About Gratitude
-================================================
 
 In this chapter, we will debunk common misconceptions about gratitude and shed light on its true nature. Understanding these misconceptions is essential for cultivating an authentic attitude of gratitude. We will explore the myths and clarify the misconceptions surrounding gratitude to provide readers with a deeper understanding of its power and potential for greater happiness and success at work.
 

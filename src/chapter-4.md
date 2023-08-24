@@ -1,5 +1,3 @@
-Chapter 4: Expressing Gratitude to Others
-=========================================
 
 Expressing gratitude to others is a powerful way to cultivate an attitude of gratitude in the workplace. In this chapter, we will explore the importance of gratitude in relationships, techniques for showing appreciation, using gratitude to build stronger teams, and developing a grateful leadership style.
 

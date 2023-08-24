@@ -1,5 +1,3 @@
-Developing Resilience Through Gratitude
-================================================
 
 In this chapter, we will explore how cultivating gratitude can contribute to the development of resilience in the face of challenges and setbacks at work. Resilience is a crucial skill that allows individuals to adapt, bounce back, and thrive in the face of adversity. By embracing gratitude as a tool for building resilience, we can navigate difficult situations with greater strength and optimism, leading to increased happiness and success in our professional lives.
 

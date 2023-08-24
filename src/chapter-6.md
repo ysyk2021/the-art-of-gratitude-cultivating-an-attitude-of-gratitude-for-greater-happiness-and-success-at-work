@@ -1,5 +1,3 @@
-Chapter 6: Gratitude and Emotional Intelligence
-===============================================
 
 Emotional intelligence (EQ) is a critical component of success in the workplace. Gratitude can play an essential role in developing EQ by fostering empathy, social awareness, and better relationships. In this chapter, we will explore the intersection of gratitude and EQ and how to use gratitude to enhance emotional intelligence.
 

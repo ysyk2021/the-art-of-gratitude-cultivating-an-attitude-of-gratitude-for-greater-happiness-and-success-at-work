@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-=========================================================================================
 
 Developing a gratitude mindset is essential for cultivating an attitude of gratitude in the workplace. In this chapter, we will explore how to develop a gratitude mindset by utilizing positive self-talk and visualization.
 

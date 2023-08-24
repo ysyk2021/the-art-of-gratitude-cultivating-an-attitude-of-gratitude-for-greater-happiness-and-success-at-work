@@ -1,5 +1,3 @@
-Addressing Negativity and Cynicism
-===============================================================================
 
 Addressing negativity and cynicism is essential for cultivating an attitude of gratitude in the workplace. In this chapter, we will explore how to overcome barriers to gratitude when facing negativity and cynicism.
 

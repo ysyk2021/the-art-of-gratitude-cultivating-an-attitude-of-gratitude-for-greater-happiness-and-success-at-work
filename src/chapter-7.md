@@ -1,5 +1,3 @@
-Chapter 7: Measuring the Impact of Gratitude
-============================================
 
 Measuring the impact of gratitude is essential for understanding its effects in the workplace. In this chapter, we will explore ways to track progress and measure results, reflect on self-evaluation, continuously learn and improve, and adapt to changes in the workplace.
 

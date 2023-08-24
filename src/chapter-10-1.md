@@ -1,5 +1,3 @@
-Recap of Key Gratitude Techniques
-=========================================================
 
 In this book, we have explored the powerful impact that gratitude can have on individuals and organizations in the workplace. From boosting positive emotions to improving communication and productivity, cultivating an attitude of gratitude can lead to greater happiness and success.
 

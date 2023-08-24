@@ -1,5 +1,3 @@
-Chapter 3: Developing a Gratitude Mindset
-=========================================
 
 Developing a gratitude mindset is essential for achieving greater happiness and success in the workplace. In this chapter, we will explore techniques for cultivating a gratitude mindset, practicing daily gratitude habits, utilizing positive self-talk and visualization, and developing resilience through gratitude.
 

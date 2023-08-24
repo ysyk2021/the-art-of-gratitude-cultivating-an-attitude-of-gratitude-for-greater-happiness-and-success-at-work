@@ -1,5 +1,3 @@
-Practicing Daily Gratitude Habits
-============================================================================
 
 Practicing daily gratitude habits is essential for developing a gratitude mindset in the workplace. In this chapter, we will explore how to develop a gratitude mindset through daily gratitude habits.
 

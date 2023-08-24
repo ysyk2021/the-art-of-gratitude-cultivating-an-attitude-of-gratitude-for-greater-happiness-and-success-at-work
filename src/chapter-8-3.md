@@ -1,5 +1,3 @@
-Utilizing Technology to Foster Gratitude
-===================================================
 
 In this chapter, we explore the ways in which technology can be utilized to foster gratitude in the workplace. With the increasing integration of technology into our professional lives, we can leverage its capabilities to enhance our gratitude practices, strengthen relationships, and promote a positive work environment.
 

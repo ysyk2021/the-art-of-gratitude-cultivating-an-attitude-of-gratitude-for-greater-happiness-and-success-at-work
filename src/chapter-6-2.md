@@ -1,4 +1,3 @@
-# Using Gratitude to Foster Empathy and Social Awareness
 
 In this chapter, we will explore how gratitude can be a powerful tool for fostering empathy and social awareness in the workplace. By cultivating an attitude of gratitude, individuals can develop a deeper understanding and appreciation for others, leading to enhanced relationships and a more inclusive work environment. We will discuss the benefits of empathy and social awareness, provide practical tips on using gratitude to foster these qualities, and highlight real-life examples of organizations that have successfully implemented these strategies.
 

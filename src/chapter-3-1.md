@@ -1,5 +1,3 @@
-Techniques for Cultivating a Gratitude Mindset
-=========================================================
 
 In this chapter, we explore practical techniques and exercises to cultivate a gratitude mindset in the workplace. These techniques are designed to help individuals foster a deeper sense of appreciation, enhance happiness, and achieve greater success.
 

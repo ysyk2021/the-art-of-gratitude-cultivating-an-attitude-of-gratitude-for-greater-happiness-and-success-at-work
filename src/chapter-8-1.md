@@ -1,5 +1,3 @@
-Strategies for Encouraging a Gratitude Mindset across the Organization
-=================================================================================
 
 In this chapter, we explore effective strategies for encouraging a gratitude mindset across the organization. Cultivating a culture of gratitude within a workplace can have numerous benefits, including increased employee satisfaction, enhanced teamwork, and improved overall performance. By implementing the following strategies, organizations can foster an environment where gratitude thrives.
 

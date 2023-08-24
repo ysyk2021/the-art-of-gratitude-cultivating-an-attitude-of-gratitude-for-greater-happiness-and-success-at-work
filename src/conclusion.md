@@ -1,4 +1,4 @@
-# Conclusion
+
 
 Gratitude is a powerful emotion that can have numerous benefits for our physical, mental, and emotional well-being, as well as in the workplace. In this book, we have explored techniques for cultivating an attitude of gratitude and how to apply them in our personal and professional lives.
 

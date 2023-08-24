@@ -1,5 +1,3 @@
-Final Thoughts and Advice
-=================================================
 
 Gratitude is a powerful tool for achieving greater happiness and success in the workplace. By cultivating an attitude of gratitude, individuals can enhance their emotional intelligence, build better relationships, and contribute to a positive work environment. In this final chapter, we will provide some final thoughts and advice for cultivating an attitude of gratitude in the workplace.
 

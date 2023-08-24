@@ -1,5 +1,3 @@
-Chapter 8: Incorporating Gratitude into Organizational Culture
-==============================================================
 
 Incorporating gratitude into an organization's culture can have a significant impact on employee happiness, productivity, and overall success. In this chapter, we will explore strategies for encouraging a gratitude mindset across the organization, creating gratitude rituals and practices, utilizing technology to foster gratitude, and developing a gratitude-based corporate social responsibility program.
 

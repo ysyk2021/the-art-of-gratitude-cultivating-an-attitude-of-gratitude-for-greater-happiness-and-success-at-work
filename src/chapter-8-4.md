@@ -1,5 +1,3 @@
-Developing a Gratitude-Based Corporate Social Responsibility Program
-====================================================================================================================================
 
 Developing a gratitude-based corporate social responsibility (CSR) program is an excellent way for organizations to give back to their communities while also fostering gratitude among employees. In this chapter, we will explore the benefits of a gratitude-based CSR program, ways to develop such a program, and how to incorporate it into organizational culture.
 

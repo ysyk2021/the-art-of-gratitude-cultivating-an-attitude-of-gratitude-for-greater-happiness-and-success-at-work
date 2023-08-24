@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Gratitude is a powerful emotion that can have significant benefits for individuals and organizations in the workplace. In this book, we will explore the importance of cultivating an attitude of gratitude and provide practical techniques for developing a gratitude mindset.
 

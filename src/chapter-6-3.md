@@ -1,5 +1,3 @@
-Building Better Relationships Through Gratitude
-================================================================================================
 
 Building better relationships through gratitude is essential for promoting a positive and productive workplace culture. In this chapter, we will explore how gratitude and emotional intelligence can be used to build better relationships in the workplace.
 

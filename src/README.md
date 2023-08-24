@@ -1,4 +1,4 @@
-# Introduction
+
 
 In today's fast-paced and highly competitive work environment, it's easy to get caught up in the day-to-day stress and lose sight of what's truly important. However, by cultivating an attitude of gratitude, we can transform our perspective and find greater happiness and success at work.
 

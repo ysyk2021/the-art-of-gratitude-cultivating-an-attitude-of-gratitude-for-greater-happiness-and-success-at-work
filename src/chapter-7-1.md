@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-=====================================================================================
 
 Measuring the impact of gratitude is essential for understanding its benefits and promoting a culture of gratitude in the workplace. In this chapter, we will explore how to track progress and measure results when practicing gratitude.
 

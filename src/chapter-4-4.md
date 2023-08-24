@@ -1,4 +1,3 @@
-# Developing a Grateful Leadership Style
 
 In this chapter, we will explore the importance of developing a grateful leadership style and how it can positively impact both personal and professional growth. As leaders, our attitudes and behaviors greatly influence those around us. By cultivating an attitude of gratitude, we can create a more positive work environment, inspire our team members, and achieve greater success at work.
 

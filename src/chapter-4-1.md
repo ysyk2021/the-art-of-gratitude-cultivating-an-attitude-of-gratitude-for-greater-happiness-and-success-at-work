@@ -1,5 +1,3 @@
-Understanding the Power of Gratitude in Relationships
-==============================================================
 
 In this chapter, we will explore the power of gratitude in relationships and how cultivating an attitude of gratitude can contribute to greater happiness and success at work.
 

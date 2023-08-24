@@ -1,5 +1,3 @@
-Chapter 2: Defining Gratitude
-=============================
 
 Gratitude is a powerful emotion that can have significant benefits for individuals and organizations in the workplace. In this chapter, we will provide an overview of gratitude, explore the science behind gratitude, and assess personal gratitude levels.
 
